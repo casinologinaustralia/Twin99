@@ -102,3 +102,4 @@ As part of their regulatory system Twin99 Casino falls under a respected licenci
 ### What Languages Is the Casino Available In?
 
 Users will discover multilingual support features various languages that serve a worldwide audience so they can enjoy comfortable gameplay no matter their native tongue.
+<h2>test</h2>
